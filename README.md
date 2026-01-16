@@ -3,4 +3,3 @@
 * 🌱 I’m currently learning a lot of things
 * 📫 How to reach me: through my discord (username: "\_\_nickles\_\_") or through my email (address: "niconickles8@gmail.com")
 * ⚡ Fun fact: I like Java
-* 🐾 meow meow, I'm a cute little kitty ca
